@@ -1,1 +1,1 @@
-### Thingking-Machine (oaio).
+### Criticizing-Machine (oaio).
